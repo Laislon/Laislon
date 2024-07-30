@@ -1,16 +1,15 @@
-## Hi there 👋
+Boas vindas ao meu perfil🎱
+meu nome é Laisla
+estou estudando alura
+gosto muito de ouvir musica
+gosto muio da minha amiga vitoria 
+minha comida favorita é´lasanha de berinjela 
+minha serie favorita é the end of the fucking world 
+amo meu filho( cachorrinho
+### voce entrar em contato comigo📘
 
-<!--
-**Laislon/Laislon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+0000113443649xsp@al.educacao.sp.gov.br
+![]()
+![image](https://github.com/user-attachments/assets/e9797f46-6e89-44e3-b791-e0cf44ad146d)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
